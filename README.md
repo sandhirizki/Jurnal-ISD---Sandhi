@@ -1,0 +1,3 @@
+NAMA : Sandhi Rizki Aryadi
+NIM : 607062330088
+KELAS : 47-02
